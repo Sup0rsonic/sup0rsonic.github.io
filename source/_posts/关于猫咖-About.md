@@ -1,0 +1,63 @@
+---
+title: 关于猫咖-About
+date: 2021-10-28 17:20:33
+tags: Nooooooooooone
+---
+
+
+
+# PO3M
+
+Here we meet, in the end of summer.
+Falling leaves and glimmering shimmer.
+Promises to keep, things be free,
+In the end of summer.
+
+
+
+# IN7RO
+
+So ends up I'm writtin' this damn blog.
+
+I didn't mean to say, *this damn blog* ,but it's still quite a lame that I can't really hold my memory to my own.
+
+*Sucks to be me, eh?*
+
+But, as a matter of fact, anyway, I did it.
+
+It's been a pleasure to meet you, then.
+
+
+
+所以我开始他妈写博客了。
+
+并不是非要说"他妈"，但是没法记住所有看过或者学到的东西还是很让人感到羞耻。
+
+Sucks to be me, 对吧?
+
+但是不管怎么说，既然我已经开始写了...
+
+那么很高兴遇见你。
+
+这里只有形而上学的猫和薛定谔的猫，但是提供24小时热咖啡供应，仅限美式。
+
+和一点关于各种赛博朋克，赛博和朋克的碎碎念。
+
+希望你看得开心。
+
+
+
+
+
+
+
+
+
+# AB0UT
+
+我，你的博主。
+
+你，读者。
+
+还有什么好问的么?
+
